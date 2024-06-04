@@ -47,3 +47,9 @@
 ![alt text](https://cdn.discordapp.com/attachments/1057918934298394678/1247574479933014220/rainbow-line.gif?ex=666085c6&is=665f3446&hm=e3b8a7aae23ecd848c7afc6e85cbc185e08e6fcfeffca5036e9941bb2591074c&)
 
 ![alt text](https://camo.githubusercontent.com/f7a7f1d0364323f8822dd41464563ac09cb88bb27e4ed94d4fb85aa0c0cec5d8/68747470733a2f2f6769746875622d70726f66696c652d74726f7068792e76657263656c2e6170702f3f757365726e616d653d656c6c696f74746f7068656c6c6961266e6f2d62673d74727565266e6f2d6672616d653d747275652672616e6b3d2d3f267468656d653d6461726b687562)
+
+
+<h3 align="left">Social Media:</h3>
+<p align="left">
+<a href="https://twitter.com/snowfallenflake" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="snowfallenflake" height="30" width="40" /></a>
+</p>

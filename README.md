@@ -29,3 +29,21 @@
 
 • Understand Speak Language of 𝗞𝗼𝗿𝗲𝗮𝗻, 𝗝𝗮𝗽𝗮𝗻, 𝗜𝗻𝗱𝗼𝗻𝗲𝘀𝗶𝗮, 𝗥𝘂𝘀𝘀𝗶𝗮, 𝗘𝗻𝗴𝗹𝗶𝘀𝗵
 
+![alt text](https://cdn.discordapp.com/attachments/1057918934298394678/1247572998161039370/20240604_222925.jpg?ex=66608465&is=665f32e5&hm=556c9ed1b708f03e2bcee1e24b9ce1e8953de86be2d86d0adf29ba015bd81d86&)
+
+<h3 align="left">Files Work:</h3>
+<p align="left">
+
+▶ {Restricted File}
+
+▶ {Restricted File}
+
+▶ {Restricted File}
+
+▶ {Restricted File}
+
+[!] File has set to private due of reason, Do not Ask / Begging.
+
+![alt text](https://cdn.discordapp.com/attachments/1057918934298394678/1247574479933014220/rainbow-line.gif?ex=666085c6&is=665f3446&hm=e3b8a7aae23ecd848c7afc6e85cbc185e08e6fcfeffca5036e9941bb2591074c&)
+
+![alt text](https://camo.githubusercontent.com/f7a7f1d0364323f8822dd41464563ac09cb88bb27e4ed94d4fb85aa0c0cec5d8/68747470733a2f2f6769746875622d70726f66696c652d74726f7068792e76657263656c2e6170702f3f757365726e616d653d656c6c696f74746f7068656c6c6961266e6f2d62673d74727565266e6f2d6672616d653d747275652672616e6b3d2d3f267468656d653d6461726b687562)
